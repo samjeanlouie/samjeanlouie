@@ -1,6 +1,6 @@
 # **Welcome Everyone** 🦖
 
-My name is Sam Jeanlouie. I'm 16 yeaars old. I'm a part time student at RVCC. I'm working towards a dual major in Biology and International Business while also working towards a certificate in Web Design and Interface. The other half of my schooling is at Watchung Hills Regional High School. If I'm not in school or studying, I'm either working, in the gym/playing basketball, coaching, or working on expanding my small businesses.
+My name is Sam Jeanlouie. I'm 16 years old. I'm a part time student at RVCC. I'm working towards a dual major in Biology and International Business while also working towards a certificate in Web Design and Interface. The other half of my schooling is at Watchung Hills Regional High School. If I'm not in school or studying, I'm either working, in the gym/playing basketball, coaching, or working on expanding my small businesses.
 
 I currently workat Zumiez in the Bridgewater Commons Mall. I'm also applying to work at various other establishments such as Shoprite and Panera. Working has always been my positive way of socializing and meeting new people.
 
